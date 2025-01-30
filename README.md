@@ -1,6 +1,6 @@
 # KOL
 
-![https://i3.ytimg.com/vi/E-uBuVQOulA/maxresdefault.jpg](http://i3.ytimg.com/vi/E-uBuVQOulA/hqdefault.jpg))
+![https://i3.ytimg.com/vi/E-uBuVQOulA/maxresdefault.jpg](http://i3.ytimg.com/vi/E-uBuVQOulA/hqdefault.jpg)
 
 ![https://i.ytimg.com/an_webp/E-uBuVQOulA/mqdefault_6s.webp?du=3000&sqp=CLDo7rwG&rs=AOn4CLB5xRzhIHN4aard_6qJ22BM_ExJUQ](https://i.ytimg.com/an_webp/E-uBuVQOulA/mqdefault_6s.webp?du=3000&sqp=CLDo7rwG&rs=AOn4CLB5xRzhIHN4aard_6qJ22BM_ExJUQ)
 
